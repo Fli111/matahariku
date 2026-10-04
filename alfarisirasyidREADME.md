@@ -1,0 +1,1 @@
+ini readme punya Al-Farisi Rasyid Subekti (20240801162)
